@@ -1,6 +1,6 @@
 # RedExinus
 
-Comming soon...
+Coming soon...
 
 # Links
 
